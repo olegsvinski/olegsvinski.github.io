@@ -1,1 +1,0 @@
-# olegsvinski.github.io
